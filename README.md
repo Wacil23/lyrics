@@ -1,5 +1,5 @@
 # lyrics
-Une souris verte,
+Un elephant bleu,
 Qui courait dans l'herbe,
 Je l'attrape par la queue,
 Je la montre à ces messieurs.
